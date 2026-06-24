@@ -1,2 +1,3 @@
 # Azybird
-<img width="506" height="665" alt="Screenshot 2026-06-22 at 20 59 12" src="https://github.com/user-attachments/assets/a1c467b3-0098-496a-9fc5-ef3aa7e67e14" />
+<img width="1012" height="1330" alt="IMG_4292" src="https://github.com/user-attachments/assets/f5a84d17-be97-4f13-8b89-4b3b93d7cd49" />
+
